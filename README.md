@@ -1,2 +1,2 @@
 # goldwing-freedom
-New newbid stuff
+New newbie stuff
